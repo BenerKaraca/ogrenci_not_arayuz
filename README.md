@@ -1,0 +1,1 @@
+# ogrenci_not_arayuz
